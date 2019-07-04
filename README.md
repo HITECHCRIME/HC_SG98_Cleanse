@@ -28,3 +28,4 @@ let the energy arrive let the energy take you too/entrance you
 
 
 ## Notes
+Song based on the idea of going through a cleanse with bass and rhytm.
